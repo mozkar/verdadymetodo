@@ -1,6 +1,10 @@
-24 	
+# VERDAD Y MÉTODO
+## Vol. I
+### Hans Greorg-Gadamer
 
-TEXTO E INTERPRETACIÓN (1984)
+### 24 	
+
+## TEXTO E INTERPRETACIÓN (1984)
 
 Los problemas de la hermenéutica tuvieron su primer origen en
 ciertas ciencias, especialmente la teología y la jurisprudencia, y al
